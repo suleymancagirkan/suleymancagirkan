@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @suleymancagirkan
 - 👀 I’m interested in coding
 - 🌱 I’m currently working at Java
-- 💞️ I’m loving she (*üe*a)
+- 🚀🫀 adeüS
