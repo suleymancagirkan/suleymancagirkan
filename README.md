@@ -3,4 +3,4 @@
 - 🌱 I’m currently working at Frontend
 - 🎒 I'm currently studying at Manisa 
      Celal Bayar University
-- 🚀🫀 B✰
+- 🚀🫀 Birgül
